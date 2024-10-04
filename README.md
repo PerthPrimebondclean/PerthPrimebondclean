@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...cleaning house, office and commercial properties.
 - 🌱 I’m currently learning ...website designing to build my bond cleaning site in perth 
 - 💞️ I’m looking to collaborate on growth
-- 📫 How to reach me mail on support@primebondclean.com.au also visit my site to connet with my company www.primebondclean.com.au
+- 📫 How to reach me mail on support@primebondclean.com.au also visit my site to connet with my company primebondclean.com.au
   
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
